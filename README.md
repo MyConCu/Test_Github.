@@ -1,3 +1,2 @@
 # hello-world.
-I have abig con cu 
-and yours is so little buddy.
+I am a cool looking man with a giant cazzo.
